@@ -3,7 +3,7 @@
 - 🌱 I’m currently a Public Relation Officer in Google Developer Student Club Chapter UPN "Veteran" Yogyakarta.
 - 💞️ I’m also an intern at Digital Marketing Company called HUB Indonesia as a Social Media Coordinator.
 - 📫 How to reach me :
-email : @audreyrospa
-instagram : @audreyrospa
-LinkedIn : https://www.linkedin.com/in/audrey-paramita-3832331bb
+- email : @audreyrospa
+- instagram : @audreyrospa
+- LinkedIn : https://www.linkedin.com/in/audrey-paramita-3832331bb
 
